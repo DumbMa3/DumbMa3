@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @DumbMa3
+- 👀 I’m interested in programmation and drawing
+- 🌱 I’m currently learning nothing (i already know everything)
+- 💞️ I’m looking to collaborate on a gameMaker studio 2 game
+- 📫 How to reach me Go on facebook and search DumbMa3
+- 😄 Pronouns: he / him
+- ⚡ Fun fact: Im a programmer and a artist
